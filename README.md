@@ -1,5 +1,5 @@
 # 💫 Sobre mim:
-🔭 Trabalhando para conquistar os objetivos e metas!<br>👯 Sempre tento ensinar o que sei, mesmo que seja pouco.<br>🤝 Estou sempre buscando ajuda e dicas sobre o que estudar! <br>🌱 Atualmente estou aprendendo sobre o mundo DevOps e suas tecnologias.<br>💬 Me pergunte qualquer coisa que tento encontrar a resposta.<br>⚡ Tímido, mas divertido e de boa conversa. 
+🔭 Trabalhando para conquistar os objetivos e metas!<br>👯 Sempre tento ensinar o que sei, mesmo que seja pouco.<br>🤝 Estou sempre buscando ajuda e dicas sobre o que estudar! <br>🌱 Atualmente estou aprendendo sobre o mundo DevOps e suas tecnologias.<br>⚡ Tímido, mas divertido e de boa conversa. 
 
 
 ## 🌐 Redes Sociais:
